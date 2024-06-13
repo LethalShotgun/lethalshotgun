@@ -4,4 +4,4 @@ I'm dumb and I don't really know how github works but that's whatever.
 
 yeah
 
-lost access to my old account.
+This is my new account. I regained access to my old one from may 2021 but im going to stick to this account.

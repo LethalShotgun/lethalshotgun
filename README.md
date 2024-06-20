@@ -1,7 +1,9 @@
-Hi im lethalshotgun, (shotgun for short) and I only use github to download stuff, or post gorilla tag custom maps, nothing much.
+Hi im lethalshotgun, (shotgun for short).
+ 
+I only use github to download stuff, or post small projects. 
 
-I'm dumb and I don't really know how github works but that's whatever.
-
-yeah
+Most of my socials all under the name "lethalshotgun"
 
 This is my new account. I regained access to my old one from may 2021 but im going to stick to this account.
+
+I like unity and VR
